@@ -7,3 +7,5 @@
 
 
 _Xin **Cam On** va hen **gap lai**_ 
+
+Thanks and goodbye
